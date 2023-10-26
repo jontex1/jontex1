@@ -20,5 +20,6 @@ mato atlantico
 lombrigo
 calabreso
  IHHH LIBERTADORES EU SOU TRIII
-![rsrs](![image](https://github.com/jontex1/jontex1/assets/146357061/67cdc220-007b-4989-910f-de58c33c515a)
+![rsrs](![image](![image](https://github.com/jontex1/jontex1/assets/146357061/80387107-b8bf-452f-8b32-b5e8655635bf)
+)
 )
