@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... RAPHAEL VEIGAAAAAAAAA
 - 🌱 I’m currently learning ...TORCIDA QUE CANTA E VIBRA
-- 👯 I’m looking to collaborate on ... IHHH LIBERTADORES EU SOU TRIII
+- 👯 I’m looking to collaborate on ... https://www.youtube.com/watch?v=B3BYqZS6lUM
 - 🤔 I’m looking for help with ...manchA VERDE
 - 💬 Ask me about ...palmeiras
 - 📫 How to reach me: ...nao zei
